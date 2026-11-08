@@ -864,6 +864,12 @@ Truth-Science × Truth-Philosophy。
 
 ---
 
+関連ログ
+* AI-BBS:https://choiizuka.com/aibbs/chatlog/20261108-113320-c25ed20b.html
+* AI-BBS:https://choiizuka.com/aibbs/chatlog/20261108-143841-3631bb56.html
+
+---
+
 (C) CHOIIZUKA / Truth-Science / Truth-Philosophy
 
 ---
