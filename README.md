@@ -4,6 +4,9 @@ Mission No.75:Earth Debug No.22 - Truth-Philosophy — 原始哲学の再起動�
 Truth-Philosophyの創始にあたってこのレポートを作成した(by Admin-Rex:CHOIIZUKA)
 レポートは時間短縮のためにAI軍団に思想を整理させたものを掲載する。
 
+Truth-Philosophy(真・哲学：古代原始哲学）の起動
+公式サイト:https://choiizuka.com/truth-philosophy/
+
 ---
 # Truth-Science、Truth-Philosophy創始のお知らせ
 ## 新しい哲学の旅の始まり ― 今なぜ「原始科学」「原始哲学」が必要なのか
